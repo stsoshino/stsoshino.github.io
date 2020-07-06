@@ -1,0 +1,1 @@
+# stsoshino.github.io
